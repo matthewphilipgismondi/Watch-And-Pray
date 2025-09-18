@@ -1,0 +1,1 @@
+Infusing this series with things like using this word frequently teaches us cultural and political values that can be considered a kind of restitution for what we did to the native population of these islands. SPeaking for those with no voice.
