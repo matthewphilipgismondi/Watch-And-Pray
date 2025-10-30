@@ -10,6 +10,7 @@ Terminus Cannibals (Killing humans to eat because food is scarce)
 Alexandria (Senator with a good heart who was willing to listen and assimilate Rick's group)
 Hilltop
 Saviors (Unreasonable tribute for oppressive protection also resembles Feudalism)
+The Skins
 Commonwealth (Senator who was selfish and valued safety of elite at cost of masses)
 
 Represent the Amorites, Amalekites, Hittites, Perezites, Jebusites, Moabites, etc.
@@ -24,4 +25,5 @@ Jebusites
 Jebus means trampled place in the traditional translation, but in the Chosen, Jesus makes special mention that Judas' name means to praise God with your hands. And the first letter of Judas is the letter that represents the hand. So Jebus must have something to do with being defiled by touching. This is related to the commandment that God gave not to use any tools on the rocks that were used for an altar to Him. There is an important conversation that takes place when Rick's group gets to Alexandria about how the community was able to isolate themselves very quickly after the fall of civilization and because they were so self-sufficient they had almost no need to interact with the outside world. This caused a huge rift between their mindset of still living by the rules of the normal world and RIck's group that had to learn to make exceptions and commit murder and other very illegal things to save themselves and those they considered to be part of their family. The fact that Jebus was located where Jerusalem would later be is reminiscent of Alexandria's proximity to Washington, D.C. However, the same could be said about the Commonwealth being associated with Virginia being a commonwealth and its proximity to D.C.
 
 Moabites
+Ruth being a Moabitess is like the girl from the Skins who joins Rick's group. MoaBITES
 From Biblehub Topical Encyclopedia: "The land of Moab was characterized by its fertile plains and rugged highlands, making it suitable for agriculture and livestock. The Moabites were known for their skills in farming and their rich pastures. The capital city of Moab was Dibon, and other significant cities included Ar and Kir." As the story of Hilltop comes to an end in Walking Dead, there are scenes of rolling hills of crops and beautiful flowers growing. Ruth and Naiomi are notable Moabites, and this is also similar to Maggie being the only female leader of any of the groups at the time. THe Moabites were known for worshipping a god who demanded human sacrifices, and that is one of the things about Gregory who is initially in charge of Hilltop. He tries to appease the Saviors after Negan took Glenn and Abraham.
